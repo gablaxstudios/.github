@@ -22,7 +22,7 @@ Bref c'est nous quoi.
 
 ## 📫 Contact
 
-» 📧 **Email** : contact@laxeztv.com    
+» 📧 **Email** : contact@blockpvp.fr  
 » 💬 **Discord** : `gbrl.rtt` | `laxeztv`  
 
 ---
